@@ -1,0 +1,8 @@
+- 💌 HII IM SETH!
+- 💥 I LIKE DRAWING AND BSD
+- 💗 TAKEN!
+- 💞️ CHUUYA KINNIE AND DAZAI KINNIE
+- 💢 TALK TOE ON DISCORD
+- 💤 Pronouns: HE/HIM IDK
+- ⚡ Fun fact:IM FROM SINGAPORE AND UH YES
+         °。 ⋆༺༻⋆。 °
